@@ -1,0 +1,1 @@
+Link to Balcony House subpage is in "Visit Balcony House" link in Home
